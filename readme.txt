@@ -10,8 +10,6 @@ asdasd
 
 adfasdsf
 adsf
-asdf
-asdfasd
 adfasdsf
 dddaasas
 asasasasf
